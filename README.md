@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Oksana
+- 👀 I’m interested in read a book, play volleyball
+- 💞️ I’m looking for Senior Android, Middle iOS Developer, Devops.
+- 📫 How to reach me in telegram: @Oksana_Tertychna
